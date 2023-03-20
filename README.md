@@ -1,3 +1,6 @@
+This is Extension that a Great Guy made and It was forced to be taken down by OPENAI, I personally liked it and i have run a build and using it for my use if interested or needed please get it from the link below and im not gonna delete OP's Post that is available below
+
+
 <p>
   Hi everyone - Thank you for your interest in this extension.
 
